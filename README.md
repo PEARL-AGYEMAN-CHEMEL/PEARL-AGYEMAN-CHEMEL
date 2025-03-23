@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Other programming languages and cybersecurity
 - 📫 How to reach me ...You can contact me on:0201294904/0538823661
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact:loves reading and swimming 🏊 
 
 <!---
 PEARL-AGYEMAN-CHEMEL/PEARL-AGYEMAN-CHEMEL is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
